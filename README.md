@@ -1,2 +1,6 @@
 # hello-world
-hello I am totaly new to this kind of stuff
+hello
+
+i twould be nice to meet anyone....
+
+but there isn't one
